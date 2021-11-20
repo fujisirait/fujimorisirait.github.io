@@ -1,1 +1,1 @@
-# fujimorisirait.github.io
+saya fuji sudah menyelesaikan tugas github
