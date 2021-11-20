@@ -1,0 +1,1 @@
+# fujimorisirait.github.io
